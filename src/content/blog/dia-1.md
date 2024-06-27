@@ -31,7 +31,7 @@ Awww, gracias por elegir que si (sino te mato 😜). Eje, na es broma de vd te a
 ## Acertijo
 Descarga este archivo para seguir con el juego.
 
-## [**AQUI**](/docs/dia1.pdf)
+## [**AQUI**](/img/downloads/dia1.png)
 Te amoooooo 💞
 
 
