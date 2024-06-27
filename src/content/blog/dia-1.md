@@ -20,17 +20,20 @@ Acaso crees que todo esto es solo para ponerte un poco de texto o asi??, OBIO QU
 
 [**SI**](#si)
 
-[**NO, me aburres**](/img/a-tomar-por-culo.jpg)
+[**No, me aburres**](/img/a-tomar-por-culo.jpg)
 
 ![](/img/dime-que-si.jpg)
-
+‎ 
 ## Si
 
-Awww, gracias por elegir que si (sino te mato 😜). Eje, na es broma de vd te amo muchisimo. Pues mira solo quiero
+Awww, gracias por elegir que si (sino te mato 😜). Eje, na es broma de vd te amo muchisimo. Pues mira solo quiero decirte un pequeño acertijo.
 
-## Geminas namque quod referitur argenteus aderat superstes
+## Acertijo
+Descarga este archivo para seguir con el juego.
 
-Insistere pugno. Cum morae vigilantibus dulces Cycnus: neque cum sororis.
+## [**AQUI**](/docs/dia1.pdf)
+Te amoooooo 💞
 
-Hac Aestas solet docebo tandem tamquam omnis vitiantur mitte, vatis in animique
-infelix passimque. Superasset onus.
+
+## ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+> Escrito el **27/06/2024**
