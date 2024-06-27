@@ -26,7 +26,7 @@ Acaso crees que todo esto es solo para ponerte un poco de texto o asi??, OBIO QU
 
 ## Si
 
-Awww, gracias por elegir que si (sino te mato 😜).
+Awww, gracias por elegir que si (sino te mato 😜). Eje, na es broma de vd te amo muchisimo. Pues mira solo quiero
 
 ## Geminas namque quod referitur argenteus aderat superstes
 
